@@ -1,6 +1,6 @@
 - 👋 ello I’m @d0nutbag
 - 👀 I’m interested in Virtual Machines and Operation Systems
-- 🌱 I’m currently learning ✨ nothing ✨
+- 🌱 I’m currently learning how to animate in the late II2 style
 - 💞️ I’m looking to collaborate on ✨ nothing ✨
 - 📫 How to reach me when im falling
 - 😄 Pronouns: He/Him
